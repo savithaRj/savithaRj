@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @savitha
-- 👀 I’m interested in learn and explore new things in technology 
+- 👀 I’m interested in learning and exploring new things in technology 
 - 🌱 I’m currently learning Ethical Hacking 
 - 📫 How to reach me :
 - E-mail 📨 -jsavitha65@gmail.com
